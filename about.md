@@ -16,5 +16,4 @@ A place to include any other types of information that you'd like to include abo
 [ourcarus@gmail.com](mailto:ourcarus@gmail.com)
 
 #### Links
-http://dividends.sg - automatic!
-[Dividends SG](http://dividends.sg)
+<a href="http://dividends.sg" target="_blank">SG Dividends</a>
