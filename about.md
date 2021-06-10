@@ -14,3 +14,7 @@ A place to include any other types of information that you'd like to include abo
 ### Contact me
 
 [ourcarus@gmail.com](mailto:ourcarus@gmail.com)
+
+#### Links
+http://dividends.sg - automatic!
+[Dividends SG](http://dividends.sg)
