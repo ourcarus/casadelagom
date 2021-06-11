@@ -1,6 +1,6 @@
 ---
 published: true
 ---
-## La bu la
+## First La bu la experience
 
-Hi this is a second post!
+Today we tried La bu la for the first time.
