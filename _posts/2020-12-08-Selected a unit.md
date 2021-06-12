@@ -9,7 +9,7 @@ There were a few factors to consider when selecting a unit: the layout of the un
 
 It was nerve-wrecking while waiting for our turn in the HDB hub lobby, hoping that the few couples before us will not pick the few units we have short-listed. It was finally our turn, and no one before us chose the unit we wanted yay! 
 
-![_config.yml]({{site.baseurl}}/images/hdb1.jpeg){:width="200"}
+![_config.yml]({{site.baseurl}}/images/hdb1.jpeg){:width="400"}
 
 We passed all the required documents to the lady officer that was serving us and signed many documents before we proceeded to pay $2000 option fee.
 
