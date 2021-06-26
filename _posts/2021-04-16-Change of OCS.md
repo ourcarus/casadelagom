@@ -1,5 +1,6 @@
 ---
 published: true
+categories: home
 ---
 ## Change of OCS
 
