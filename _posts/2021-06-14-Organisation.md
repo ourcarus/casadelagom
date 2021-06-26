@@ -1,6 +1,7 @@
 ---
 published: true
 categories: home
+casadelagom: home
 ---
 ### Enroute to decluttering, more organised and a lagom lifestyle
 
