@@ -1,6 +1,12 @@
 ---
 published: true
 ---
+---
+layout: post
+title: test
+categories: home
+---
+
 ### Enroute to decluttering, more organised and a lagom lifestyle
 
 We packed and cleaned C's room as we had bought an ikea KALLAX shelf to replace her old small light grey cabinet, infested with cockroaches. Fixed it up for her while she went to collect the cake with her sis.
