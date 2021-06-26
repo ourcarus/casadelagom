@@ -1,5 +1,6 @@
 ---
 published: true
+categories: home
 ---
 ## Selected a unit
 
