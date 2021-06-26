@@ -16,4 +16,8 @@ A place to include any other types of information that you'd like to include abo
 [ourcarus@gmail.com](mailto:ourcarus@gmail.com)
 
 #### Links
+##### Investments
 <a href="http://dividends.sg" target="_blank">SG Dividends</a>
+
+##### Housework Tips
+<a href="https://fb.watch/6mbqFwa3u0/" target="_blank">Housework Tip 1</a>
