@@ -13,12 +13,12 @@
 /**************/
 
 html {
-  /*font-size: 100%;*/
+  font-size: 100%;
 }
 
 body {
 	background: $white;
-    font: 8px $helvetica;
+    font: 12px $helvetica;
     color: $darkGray;
 }
 
@@ -266,7 +266,7 @@ nav {
 
   .read-more {
     text-transform: uppercase;
-    font-size: 8px;
+    font-size: 10px;
   }
 }
 
