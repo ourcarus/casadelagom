@@ -31,6 +31,7 @@ body {
 }
 
 .entry {
+  	font-size: 10px;
 	display:inline;
 }
 
@@ -121,7 +122,6 @@ img {
 }
 
 .date {
-  font-size: 10px;
   font-style: italic;
   color: $gray;
 }
