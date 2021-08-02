@@ -21,3 +21,6 @@ A place to include any other types of information that you'd like to include abo
 
 ##### Housework Tips
 <a href="https://fb.watch/6mbqFwa3u0/" target="_blank">Housework Tip 1</a>
+
+##### Reno tips
+<a href="https://fb.watch/76ZkGyyxE8/" target="_blank">Reno Tip 1</a>
