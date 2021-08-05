@@ -27,4 +27,7 @@ A place to include any other types of information that you'd like to include abo
 
 <a href="https://fb.watch/7aoQQau3Ck/" target="_blank">Reno Tip 2</a>
 
+<a href="https://fb.watch/7bbBoInkyk/" target="_blank">Reno Tip 3</a>
+
+
 
