@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-## Choosing engagement ring jeweller
+### Choosing engagement ring jeweller
 
 Last week (3rd Jul 2021, Saturday), we booked an appointment with Jann Paul to view the diamond engagement rings. We had a 2.5hr session learning about diamonds and the 4Cs, Cut, Colour, Clarity and Carat. Jann Paul has a signature 10 hearts and arrows diamond, shaped in decagon. Jann Paul is just beginning their lab grown diamonds hunt.
 
