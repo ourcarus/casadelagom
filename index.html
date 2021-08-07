@@ -10,11 +10,13 @@ published: true
       {% endcomment %}
 
       <div class="entry">
-        {% comment %}{{ post.excerpt }} {{post.date | date_to_string}}{% endcomment %}
-        <a href="{{ site.baseurl }}{{ post.url }}">{{post.excerpt}}</a><span style="float: right;">{{post.date | date_to_string}}</span> &raquo; 
+        <a href="{{ site.baseurl }}{{ post.url }}">{{post.excerpt}}</a>
+        	<span style="float:right;">{{post.date | date_to_string}}</span> 
       </div>
 
       <a href="{{ site.baseurl }}{{ post.url }}" class="read-more">Read More</a>
     </article>
   {% endfor %}
 </div>
+
+{% comment %}{{ post.excerpt }} {{post.date | date_to_string}}{% endcomment %}
