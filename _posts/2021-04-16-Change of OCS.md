@@ -2,7 +2,7 @@
 published: true
 categories: home
 ---
-## Change of OCS
+### Change of OCS
 
 After much discussion we decide to email HDB to request for change of the OCS option, to not have all the internal doors, sanitary fittings, and floor finishes provided in the flat.
 
