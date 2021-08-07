@@ -5,15 +5,12 @@ published: true
 <div class="posts">
   {% for post in site.posts %}
     <article class="post">
-
       {% comment %}<h1><a href="{{ site.baseurl }}{{ post.url }}">{{ post.title }}</a></h1>
       {% endcomment %}
-
       <div class="entry">
         <a href="{{ site.baseurl }}{{ post.url }}">{{post.excerpt}}</a>
         	<span style="float:right;">{{post.date | date_to_string}}</span> 
       </div>
-
     </article>
   {% endfor %}
 </div>
