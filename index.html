@@ -11,7 +11,7 @@ published: true
 
       <div class="entry">
         {{ post.excerpt }} {{post.date | date_to_string}}
-        <ul><span>{{post.date | date_to_string}}</span> &raquo;{{post.excerpt}}</ul>
+        <li>{{post.date | date_to_string}} &raquo;{{post.excerpt}}</li>
       </div>
 
       <a href="{{ site.baseurl }}{{ post.url }}" class="read-more">Read More</a>
