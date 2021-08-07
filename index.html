@@ -11,7 +11,7 @@ published: true
 
       <div class="entry">
         {% comment %}{{ post.excerpt }} {{post.date | date_to_string}}{% endcomment %}
-        <span>{{post.excerpt}} &nbsp;<a href="{{ site.baseurl }}{{ post.url }}">{{post.date | date_to_string}}</a></span>
+        <span>{{post.date | date_to_string}}</span> &raquo;<a href="{{ site.baseurl }}{{ post.url }}">{{post.excerpt}}</a>
       </div>
 
       <a href="{{ site.baseurl }}{{ post.url }}" class="read-more">Read More</a>
