@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-## Choosing the diamond
+### Choosing the diamond
 
 After much discussion and consideration, C has decided to go with the lab grown Decagon diamond from JP. However, the lab grown diamonds from JP starts at 0.5 carat weight. After sending an enquiry email to JP staff (Dylan) who attended to us during our first visit to JP, the price range of a 0.51-0.55 carat lab grown Decagon diamond is about $2000 - $2200.
 
