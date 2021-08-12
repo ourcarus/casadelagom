@@ -1,3 +1,8 @@
+---
+layout: page
+permalink: /tech/
+---
+
 ## Tech
 
 Tech stuff here
