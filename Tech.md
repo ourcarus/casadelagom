@@ -1,9 +1,8 @@
 ---
 layout: page
 permalink: /tech/
+published: true
 ---
-
-## Tech
 
 Tech stuff here
 
