@@ -21,3 +21,14 @@ We passed all the required documents to the lady officer that was serving us and
 On hindsight, since we BTO-ed for the Aug 2020 BTO exercise, the income assessment is from Sept 2019 - Aug 2020. And R was still a student from Sept 2019 - Dec 2019, he was required to bring a proof of him being a student during that period.
 
 GreenOpal is the only project that offered the OCS option compared to the other 2 projects which are PPVC projects. We opted in for OCS as it was the cheapest option at that point in time.
+
+Past projects
+
+| Completion dates | Estimated Completion Date | Estimated waiting time | EDPD |
+|-------|--------|---------|---|
+| Tampines GreenCrest | 4Q2023 | 33-34 months | 31 May to 30 Jun 2025 |
+| Tampines GreenGlade | 3Q2023 | 29-30 months | 31 Jan to 28 Feb 2025 |
+| Tampines GreenOpal | 2Q2025 | 50 months | 31 October 2026 |
+| Tampines GreenEmerald | 1Q2025 | 45-47 months | 31 Jul to 30 Sep 2026 |
+| Bishan Ridges | 2Q2026 | 60-61 months | 31 Oct to 30 Nov 2027 |
+| Sun Sails | 2Q2025 | 48-49 months | 31 Oct to 30 Nov 2026 |
