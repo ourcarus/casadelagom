@@ -22,7 +22,7 @@ On hindsight, since we BTO-ed for the Aug 2020 BTO exercise, the income assessme
 
 GreenOpal is the only project that offered the OCS option compared to the other 2 projects which are PPVC projects. We opted in for OCS as it was the cheapest option at that point in time.
 
-Past projects
+### Past projects
 
 | Completion dates | Estimated Completion Date | Estimated waiting time | EDPD |
 | :------- | :-------- | :--------- | :--- |
