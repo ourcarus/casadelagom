@@ -25,7 +25,7 @@ GreenOpal is the only project that offered the OCS option compared to the other 
 Past projects
 
 | Completion dates | Estimated Completion Date | Estimated waiting time | EDPD |
-|-------|--------|---------|---|
+| :------- | :-------- | :--------- | v--- |
 | Tampines GreenCrest | 4Q2023 | 33-34 months | 31 May to 30 Jun 2025 |
 | Tampines GreenGlade | 3Q2023 | 29-30 months | 31 Jan to 28 Feb 2025 |
 | Tampines GreenOpal | 2Q2025 | 50 months | 31 October 2026 |
