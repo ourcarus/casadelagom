@@ -9,10 +9,10 @@ Goofy ordered the hazelnut chocolate while Stitch ordered her favourite peanut b
 
 <u>Cost</u>
 | :------- | :-------- |
-Hazelnut chocolate pancake | $14.50
-Peanut butter pancake | $14
-Kokoa drink | $5
-Total | $33.50
+| Hazelnut chocolate pancake | $14.50 |
+| Peanut butter pancake | $14 |
+| Kokoa drink | $5 |
+| Total | $33.50 |
 
 ![_config.yml]({{site.baseurl}}/images/B507FBD7-56D5-4F38-926C-AECC0827491A.jpeg)
 
