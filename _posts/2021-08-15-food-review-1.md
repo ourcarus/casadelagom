@@ -8,6 +8,7 @@ Today we tried Fluff Stack at Tampines One.
 Goofy ordered the hazelnut chocolate while Stitch ordered her favourite peanut butter stack and the new found love - kokoa drink.
 
 <u>Cost</u>
+
 | :------- | :-------- |
 | Hazelnut chocolate pancake | $14.50 |
 | Peanut butter pancake | $14 |
