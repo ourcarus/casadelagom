@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-## Food review for Rocky Tampines Cafe
+### Food review for Rocky Tampines Cafe
 
 We went for our first run at Tampines Hub level 5 today. Thought there weren't lockers available but turns out there were lockers. Ran 3 round of 700+m and 1 round of 400+m. 
 
