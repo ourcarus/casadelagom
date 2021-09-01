@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ### Job offer for Stitch after 646 days at Txxx-x
 
