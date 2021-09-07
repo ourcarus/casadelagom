@@ -7,7 +7,8 @@ Stitch got an official job offer from Pxxxxxxx but the base salary seems low and
 
 Happy for Stitch.
 
-7 Sep 2021
+Update on 7 Sep 2021
+
 Stitch got another offer from P***** but already negotiated with Pxxxxxxx on the salary. Stitch is in a dilemma and Goofy bought an avocado coconut shake for her to celebrate the double offer!
 
 
