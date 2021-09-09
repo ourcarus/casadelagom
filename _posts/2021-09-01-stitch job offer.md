@@ -7,7 +7,7 @@ Stitch got an official job offer from Pxxxxxxx but the base salary seems low and
 
 Happy for Stitch.
 
-Update on 7 Sep 2021
+### Update on 7 Sep 2021
 
 Stitch got another offer from P***** but already negotiated with Pxxxxxxx on the salary. Stitch is in a dilemma and Goofy bought an avocado coconut shake for her to celebrate the double offer!
 
@@ -16,3 +16,9 @@ Stitch even forgot the heater for the first time.
 ![_config.yml]({{site.baseurl}}/images/stitch1.png)
 
 Happy for Stitch x2.
+
+### Update on 9 Sep 2021
+
+Stitch has decided to accept P***** and Goofy had a small pay increment! We also received our EHG grant approval today. Happy day for us both. Though a bit sad that Stitch seem to have forgotten about this as focus was on her job offer.
+
+
