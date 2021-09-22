@@ -21,4 +21,5 @@ Happy for Stitch x2.
 
 Stitch has decided to accept P***** and Goofy had a small pay increment! We also received our EHG grant approval today. Happy day for us both. Though a bit sad that Stitch seem to have forgotten about this as focus was on her job offer.
 
-
+### Update on 22 Sep 2021
+Stitch is certified fit for enployment at new P***** and officially resigned from the old job. Happy for stitch.
