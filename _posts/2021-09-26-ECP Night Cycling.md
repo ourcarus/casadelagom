@@ -15,4 +15,4 @@ We rented 2 bikes for 3 hours for $60 (avg $10/hr) and started cycling at 7.45pm
 
 ![_config.yml]({{site.baseurl}}/images/ECP_Flyer.JPG)
 
-We took approximately another hour and reached Marina Barrage around 9.10pm, and rested there for about 20-30mins as we realised the entrance to the field area was closed. At least we managed to take some photos before cycling back.
+We took approximately another hour and reached Marina Barrage around 9.10pm, and rested there for about 20-30mins as we realised the entrance to the field area was closed. At least we managed to take some photos before cycling back. It was a good ride.
