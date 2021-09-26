@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-### Night cycling ECP to Marina Barrage
+### Night cycling from ECP to Marina Barrage
 
 We had our first night cycling together. We drove to ECP on Saturday, 25 Sep for an originally planned cycling and watching netflix at Marina Barrage before dinner. However we arrived at ECP around 6.30pm and decided to have dinner at East Coast Lagoon first.
 
