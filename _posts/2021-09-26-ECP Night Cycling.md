@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ### Night cycling ECP to Marina Barrage
 
