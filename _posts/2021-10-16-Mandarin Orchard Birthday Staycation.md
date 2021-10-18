@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-### Mandarin Orchard Birthday Staycation & FIRE
+### [STITCH's BDAY] @ Mandarin Orchard 
 
 We checked in on 14 Oct 2021 and Goofy requested for a complimentary cake and free room upgrade. We got a free room upgrade from deluxe to superior deluxe and a complimentary chocolate cake sent to our room.
 
