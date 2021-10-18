@@ -5,6 +5,8 @@ published: true
 
 We checked in on 14 Oct 2021 and Goofy requested for a complimentary cake and free room upgrade. We got a free room upgrade from deluxe to superior deluxe and a complimentary chocolate cake sent to our room.
 
+![_config.yml]({{site.baseurl}}/images/mandarinorchard3.png)
+
 ![_config.yml]({{site.baseurl}}/images/mandarinorchard1.JPG)
 
 ![_config.yml]({{site.baseurl}}/images/mandarinorchard2.JPG)
