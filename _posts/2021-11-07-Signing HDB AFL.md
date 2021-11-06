@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ### Signing HDB AFL and food review
 
