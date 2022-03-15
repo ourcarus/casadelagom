@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ### The next phase: Test of mathematical chemistry
 
@@ -31,8 +31,3 @@ When Stitch got in, i gave her the bouquet and asked her to decode the numbers o
 
 ### Dinner
 We had dinner at 1826, coincidental that the restaurant happened to be numbers as well. The restaurant screwed up the reservation timing as they had our booking at 8.30pm instead of 7.30 which was what we booked. However the manager was nice and offered us a free beer (which was wasted) and a free lava cake. Stitch ordered lobster and i ordered pork ribs.
-
-
-
-
-
