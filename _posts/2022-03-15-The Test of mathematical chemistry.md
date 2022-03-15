@@ -13,10 +13,10 @@ I remember we booked the staycation at Carlton via Klook on 31 Dec 2021 using th
 It wasn't really a surprise since Stitch chose her own ring. We went down to JP on 29 Jan 2021 to view the diamond and ring setting. Upsized about 1.5 for the ring size. Then, i went down myself to collect the ring on 28 Feb 2022. The entire process from education to selection, customisation, viewing and collection took about 7 months.
 
 - 3 Jul 2021: Diamond education session with a diamond specialist
-- 21 Aug 2021: Order Custom Cut Decagon 10 Hearts & Arrows (LG) |
-- 9 Sep 2021: Confirmation of ring design based on 3D Render V5 |
-- 29 Jan 2022: Diamond viewing |
-- 28 Feb 2022: Ring collection |
+- 21 Aug 2021: Order Custom Cut Decagon 10 Hearts & Arrows (LG)
+- 9 Sep 2021: Confirmation of ring design based on 3D Render V5
+- 29 Jan 2022: Diamond viewing
+- 28 Feb 2022: Ring collection
 - 11 Mar 2022: The test
 
 ### Preparation
