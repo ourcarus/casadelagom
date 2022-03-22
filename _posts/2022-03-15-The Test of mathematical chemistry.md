@@ -29,7 +29,7 @@ On the actual day, we went to Tai Seng to queue for 1 hr to eat our beloved fish
 
 When Stitch got in, i gave her the bouquet and asked her to decode the numbers on it with 3 layers of encoding. After numerous hints, and with utmost faith in her, she finally decoded the message and i proposed to her and put on the ring for her.
 
-![_config.yml]({{site.baseurl}}/images/periodic-table.PNG)
+![_config.yml]({{site.baseurl}}/images/periodic-table.png)
 
 ### Dinner
 We had dinner at 1826, coincidental that the restaurant happened to be numbers as well. The restaurant screwed up the reservation timing as they had our booking at 8.30pm instead of 7.30 which was what we booked. However the manager was nice and offered us a free beer (which was wasted) and a free lava cake. Stitch ordered lobster and i ordered pork ribs.
