@@ -9,8 +9,8 @@ Took leaves on 20th and 23rd May to spend more time together. It is a special da
 
 Then we went over to MetaJam exhibition.
 
-![_config.yml]({{site.baseurl}}/images/2022 Annivs Lunch.PNG)
+![_config.yml]({{site.baseurl}}/images/2022 MetaJam.PNG)
 
 We had cafe food at Habitat Coffee for dinner.
 
-![_config.yml]({{site.baseurl}}/images/2022 MetaJam.PNG)
+![_config.yml]({{site.baseurl}}/images/2022 Annivs Dinner.PNG)
