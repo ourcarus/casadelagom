@@ -14,3 +14,11 @@ Then we went over to MetaJam exhibition.
 We had cafe food at Habitat Coffee for dinner.
 
 ![_config.yml]({{site.baseurl}}/images/2022 Annivs Dinner.PNG)
+
+22 May 2022. We went IMM and got a birks. 
+
+![_config.yml]({{site.baseurl}}/images/2022 Rus birks.PNG)
+
+23 May 2022. We ate Ya Kun for breakfast and then travelled to So Good at 313 Somerset for Buo Luo. Ended off the day with standard DTF dinner.
+
+![_config.yml]({{site.baseurl}}/images/20220523 food.PNG)
