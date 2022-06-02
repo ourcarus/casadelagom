@@ -1,5 +1,5 @@
 layout: page
-permalink: /tech/
+permalink: /home/
 
 Reno and furnishing stuff here.
 
