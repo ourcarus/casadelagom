@@ -1,3 +1,6 @@
+layout: page
+permalink: /tech/
+
 Reno and furnishing stuff here.
 
 Notes when planning renovation:
