@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ### Hari Raya Weekend and Fengshui Master Consultation
 
