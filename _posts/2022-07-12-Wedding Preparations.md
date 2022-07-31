@@ -14,3 +14,5 @@ AC - Free and easy
 ### 24 Jul 2022
 We went to MBS Singapore Wedding Fair. Despite us not planning to sign any packages, we ended up signing the 2nd bridal package that we saw - YC. The first bridal package we saw was Taiwanish and quite shady so it was a bit weird. We were drawn in and lost to YC's sales aunty and hence signed the package.
 
+### 31 Jul 2022
+We had our first appointment on 31 Jul 3.30pm at YC. Stitch tried on 8 dresses.
