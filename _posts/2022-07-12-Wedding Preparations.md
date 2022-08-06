@@ -16,3 +16,11 @@ We went to MBS Singapore Wedding Fair. Despite us not planning to sign any packa
 
 ### 31 Jul 2022
 We had our first appointment on 31 Jul 3.30pm at YC. Stitch tried on 8 dresses.
+
+### 6 Aug 2022
+1-Atico reached out to us to arrange an appointment for a site visit and also to let us know some of the bridal show perks during the bridal showcase on 14 Aug. We visited 1-Atico and saw a live wedding lunch ongoing. Unfortunately, our preferred date was booked already.
+
+#### Collection of Wedding Bands
+We finally collected our wedding bands at JP. Stitch paid the remanining balance using her new UOB Absolute Card as she was trying to hit 1.5k min spend to get the $150 cashback promo. There is one complimentary free polishing of ring which Amy advised us to use after 3 years. She also mentioned the possibility of future complimentary polishings on case basis (e.g. when she is around).
+
+We visited P.S. Cafe at One Fullertone for solemnisation venue. The captain's room seems quite small compared to the photo itself. Apparently, the manager could only show us around and don't have the other detail. We'll need to take the discussion via email with P.S. Cafe.
