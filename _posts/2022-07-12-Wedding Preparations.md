@@ -35,4 +35,4 @@ We visited P.S. Cafe at One Fullerton for solemnisation venue. The captain's roo
 #### 20 Aug 2022 - Sofitel Sentosa site visit
 Off we start the day with a Blanco Court Prawn Mee brunch at Bugis. We parked at Bugis+ as it was quite hard to find a lot near the roadside during Saturday lunch hour. Then we headed to Ah Chew for dessert. Lucky we brought an umbrella as it rained.
 
-Headed to Sentosa afterwards and met Praba from Sofitel.
+Headed to Sentosa afterwards and met Praba from Sofitel. She didnt offer us water.
