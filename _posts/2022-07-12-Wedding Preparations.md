@@ -31,3 +31,6 @@ We finally collected our wedding bands at JP. Stitch paid the remaining balance 
 
 #### P.S. Cafe at One Fullerton site visit for solemnisation
 We visited P.S. Cafe at One Fullerton for solemnisation venue. The captain's room seems quite small compared to the photo itself. Apparently, the manager could only show us around and don't have the other detail. We'll need to take the discussion via email with P.S. Cafe.
+
+#### 20 Aug 2022 - Sofitel Sentosa site visit
+Off we start the day with a Blanco Court Prawn Mee brunch at Bugis. We parked at Bugis+ as it was quite hard to find a lot near the roadside during Saturday lunch hour. Then we headed to Ah Chew for dessert. Lucky we brought an umbrella as it rained.
