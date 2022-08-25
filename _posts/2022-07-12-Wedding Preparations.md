@@ -35,4 +35,19 @@ We visited P.S. Cafe at One Fullerton for solemnisation venue. The captain's roo
 #### 20 Aug 2022 - Sofitel Sentosa site visit
 Off we start the day with a Blanco Court Prawn Mee brunch at Bugis. We parked at Bugis+ as it was quite hard to find a lot near the roadside during Saturday lunch hour. Then we headed to Ah Chew for dessert. Lucky we brought an umbrella as it rained.
 
-Headed to Sentosa afterwards and met Praba from Sofitel. She didnt offer us water.
+Headed to Sentosa afterwards and met Praba from Sofitel. She didnt offer us water. Sofitel's package was at $1688++ with min 12 and max 14 tables. Stitch seem to be impressed by the ballroom which was what she was looking out for - an small and intimate venue. Praba told us that there is going to be an upcoming bridal showcase in Sep 2022 where there would be some additional perks offered. Afterwards, we lazed at Vivo, ate dinner and sent Stitch to class.
+
+#### 21 Aug 2022 - Hilton, Sheraton and Furama Riverfront site visits
+
+Started the day by sending Stitch to class and then fetched H and L from Woodlands to meet S for lunch after class. Famous Shanghai Renjia restaurant in AMK that we wanted to go to was full for lunch and we didn't 
+know that it required a booking.
+
+##### Hilton
+Met J at Hilton where she brought us to see the Tea Room and the Imperial Ballroom at level 35. It was quite strange that she brought us for site visit even while some painting works are being done in the ballroom. She also did not close the curtains for us to view the lightings. The ballroom layout is one-of-a-kind theatre style which is very unique. J mentioned that a couple was also looking at our same date for lunch and was already ready to place a deposit and that we will need to make a decision on the same day. We tried to negotiate for perks and L helped us to get additional 10 wines and waiver of corkage.
+
+#### Sheraton
+Ballroom(s), especially Topaz Ballroom (max 144) has old vibes and it is a bit special that Sheraton offers 12 pax per table. Bad thing is that Topaz room has a pillar which causes some guests to be out of sight from the stage. Good thing is that Sheraton was quite generous and gave us some pastries to bring home. We also found out more about a live band vendor.
+
+#### Furama Riverfront
+The waterfall (min 15 tables) venue that we wanted is actually a lounge area turned wedding venue. However, it is already taken on our date and time. Other ballrooms didn't seem that appealing although the package was one of the most value package we've come across.
+
