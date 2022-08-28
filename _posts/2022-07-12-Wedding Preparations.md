@@ -51,3 +51,13 @@ Ballroom(s), especially Topaz Ballroom (max 144) has old vibes and it is a bit s
 #### Furama Riverfront
 The waterfall (min 15 tables) venue that we wanted is actually a lounge area turned wedding venue. However, it is already taken on our date and time. Other ballrooms didn't seem that appealing although the package was one of the most value package we've come across.
 
+#### 28 Aug 2022 - M Hotel, Fullerton Hotel and Fullerton Bay Hotel site visits
+
+##### M Hotel 4pm
+Fetched Stitch after class to M Hotel where we met H, L, M who had already viewed the venues at M. The package was quite value for money (with complimentary free flow beer, wine and additional night stay if we confirm on the day) and room seems to be quite nice. However, stage looks filmsy and the ceiling is quite short. Ballroom doesn't seem that nice compared to others.
+
+##### Fullerton Hotel
+Met hotel sales person W at Fullerton where she brought us to view the Straits Room (Level 4, min 100, max 140. We were surprised to find out that Straits Room is going to be renovated sometime in 2023 and estimated to be completed around mid-Sep, far too close to our wedding date. Furthermore, Straits Room, the toilet and the Rooftop (for pre-event cocktails) are not wheelchair friendly. Price per table: $1,928 per table.
+
+##### Fullerton Bay Hotel
+W brought us to view Fullerton Bay Hotel where the main selling point is the views but the venue is kind of visible to the public. Min spend is $40k and the rate is $278pp.
