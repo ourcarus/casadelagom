@@ -61,3 +61,6 @@ Met hotel sales person W at Fullerton where she brought us to view the Straits R
 
 ##### Fullerton Bay Hotel
 W brought us to view Fullerton Bay Hotel where the main selling point is the views but the venue is kind of visible to the public. Min spend is $40k and the rate is $278pp.
+
+#### 17 Sep 2022 - Sofitel Sentosa Wedding Showcase and Deposit
+Met P at Sofitel but she showed us the deco at the straits ballroom instead of the saffron ballroom that we were looking for.
