@@ -63,4 +63,4 @@ Met hotel sales person W at Fullerton where she brought us to view the Straits R
 W brought us to view Fullerton Bay Hotel where the main selling point is the views but the venue is kind of visible to the public. Min spend is $40k and the rate is $278pp.
 
 #### 17 Sep 2022 - Sofitel Sentosa Wedding Showcase and Deposit
-Met P at Sofitel but she showed us the deco at the straits ballroom instead of the saffron ballroom that we were looking for.
+6 of us went down to Sentosa and we met P at Sofitel but she showed us the deco at the straits ballroom instead of the saffron ballroom that we were looking for. Since we already discussed about the package via email, P briefed us the final package inclusions before we signed the draft contract and paid the $5k deposit via grabpay (split into 2x $2.5k payments). The grab wallet then reached to 80/90% of the $30k limit. Beer barrel was 20L and additional barrel is $500. Then we had L and H drop us off for a short visit to C's graduation at Grand Copthorne Hotel before we headed home.
