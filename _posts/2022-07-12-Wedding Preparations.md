@@ -64,3 +64,6 @@ W brought us to view Fullerton Bay Hotel where the main selling point is the vie
 
 #### 17 Sep 2022 - Sofitel Sentosa Wedding Showcase and Deposit
 6 of us went down to Sentosa and we met P at Sofitel but she showed us the deco at the straits ballroom instead of the saffron ballroom that we were looking for. Since we already discussed about the package via email, P briefed us the final package inclusions before we signed the draft contract and paid the $5k deposit via grabpay (split into 2x $2.5k payments). The grab wallet then reached to 80/90% of the $30k limit. Beer barrel was 20L and additional barrel is $500. Then we had L and H drop us off for a short visit to C's graduation at Grand Copthorne Hotel before we headed home.
+
+#### 17 Oct 2022 - Confirmation and signing of contract
+After clarifications with P via email, we signed the official contract and sent it back to Sofitel.
