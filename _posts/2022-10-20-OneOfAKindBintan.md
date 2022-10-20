@@ -14,7 +14,7 @@ We were greeted by a welcome drink and a birthday-decoed villa facing the ocean.
 #### Birthday 14 Oct
 We woke up at 8am for breakfast and then back to the room for a few more rounds of Catan. Then it started raining and we were stuck in the room for more Catan. We had lunch at the Azura restaurant and tried their Ayam Bakar, Ayam Penyet and satay. It was good. Afterwards, we were picked up by our driver at 3pm to head to River Spa. We boarded a sampan to the massage room which is in the woods, indeed a one-of-a-kind experience. After a 75min massage, we were provided 2 huge coconut drinks while we waited for our driver to pick us up to return to the resort. We headed for a 16-lap swim at the resort's pool before having dinner at the Ocean restaurant and ordered a sumptuous grilled fish, bok choy and some black pepper prawns. At around 9.30pm, the hotel staff sent a birthday cake with a lighted candle to our room but unfortunately S was in the bathroom. So G surprised S with the cake when she came out of the bathroom. Ate half the cake and ended the day with more Catan (expansion pack).
 
-##### Final and departure day 15 Oct
+#### Final and departure day 15 Oct
 We woke up at 5.30 to catch the lovely sunrise. The view was magnificent from our villa. After breakfast, we played some Catan, had a bath before checking out. We headed for lunch back at Teluk Bakau Bay View before heading to BBT to catch our ferry back to SG.
 
 
