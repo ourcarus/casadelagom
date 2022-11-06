@@ -15,4 +15,8 @@ G:
 5. Blackdot pro, black: $36.99
 6. Adidas superstar FZ1968: $74.09
 
+S:
+1. 2x Sports bra: $23.20, $20.16
+2. Underarmour UA Women's Project Rock Heatgear Armour Ankle Legging: $$37.37
+3. Underarmour UA Women's Project Rock Heatgear Bike shorts: $23.18
 
