@@ -13,8 +13,3 @@ G:
 3. Underarmour UA Men's Tech 6" Boxerjock, 2-pack, blue, S: $25.91
 4. Underarmour UA Men's UA Tech 2.0 short sleeve, blue, XS: $15.38
 5. Blackdot pro, black: $36.99
-
-
-
-
-
