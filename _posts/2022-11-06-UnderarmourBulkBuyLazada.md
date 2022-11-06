@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ### Underarmour bulk buy on Lazada
 
@@ -19,4 +19,3 @@ S:
 1. 2x Sports bra: $23.20, $20.16
 2. Underarmour UA Women's Project Rock Heatgear Armour Ankle Legging: $$37.37
 3. Underarmour UA Women's Project Rock Heatgear Bike shorts: $23.18
-
