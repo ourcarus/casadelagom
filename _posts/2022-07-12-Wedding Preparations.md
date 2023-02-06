@@ -68,5 +68,11 @@ W brought us to view Fullerton Bay Hotel where the main selling point is the vie
 #### 17 Oct 2022 - Confirmation and signing of contract
 After clarifications with P via email, we signed the official contract and sent it back to Sofitel.
 
+#### 27 Nov 2022 - Second appointment at YCBS
+C went down to try 13 more gowns together with her sis.
+
+#### 26 Dec 2022 - Third appointment at YCBS
+We went down to finalise gown selection and try on suits. Also decided on the details and design of the custom made gown and selected the photographer.
+
 #### 5 Feb 2023 - SDJ at Chow Tai Fook
 After yuan xiao lunch with Serangoon family at Jewel, we went to browse SDJ at Chow Tai Fook and ended up getting a set of 5 jewellery.
