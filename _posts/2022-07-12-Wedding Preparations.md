@@ -76,3 +76,6 @@ We went down to finalise gown selection and try on suits. Also decided on the de
 
 #### 5 Feb 2023 - SDJ at Chow Tai Fook
 After yuan xiao lunch with Serangoon family at Jewel, we went to browse SDJ at Chow Tai Fook and ended up getting a set of 5 jewellery.
+
+#### 12 Feb 2023 - TQ at Soup Restaurant, Jewel
+2 families finally met for the first official meal at Soup restaurant Jewel for TQ.
