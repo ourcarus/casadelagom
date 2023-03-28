@@ -79,3 +79,13 @@ After yuan xiao lunch with Serangoon family at Jewel, we went to browse SDJ at C
 
 #### 12 Feb 2023 - TQ at Soup Restaurant, Jewel
 2 families finally met for the first official meal at Soup restaurant Jewel for TQ.
+
+#### 19 Mar 2023 - Fitting for pre-wedding shoot
+We went down to YCBS on Sundat for final fitting before the actual shoot next Monday.
+
+#### 27 Mar 2023 - Actual pre-wedding shoot
+We had Yakun for bf together with L at century square before heading to YCBS for makeup at 9.30am. It started raining on the way to AMK.
+
+A came along with mcdonalds brunch around 11am. By 12.30pm we were almost done with makeup and started to head to our first location Seletar Reservoir for the huge tree, while it was still raining. We started with casual outfits (navy top, khaki pants, navy maxi dress) and began moving into poses as directed by photographer Coffee. We had to find cover under trees so as not to get our makeup wet.
+
+Next we changed to our gowns and suits and thankfully the weather started to clear up and we continued with the shoot. After we were done, we changed into the second gown and left for Henderson Waves around 3.20pm. L and A dropped us off at the entrance of Henderson Waves before parking the car. We spent about 2hrs+ taking photos before we headed to our final location MBS 6+pm (parked at Ritz Carlton as the carpark charges were $2 plus per entry after 6pm). We changed into final purple gown and navy suit and walked across Helix Bridge to LV for some photos. Then we walked back to Helix Bridge for some iconic MBS night shots and ended around 8.20pm.
