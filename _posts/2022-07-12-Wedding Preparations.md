@@ -83,9 +83,23 @@ After yuan xiao lunch with Serangoon family at Jewel, we went to browse SDJ at C
 #### 19 Mar 2023 - Fitting for pre-wedding shoot
 We went down to YCBS on Sundat for final fitting before the actual shoot next Monday.
 
-#### 27 Mar 2023 - Actual pre-wedding shoot
+#### 27 Mar 2023 - Fourth appoint at YCBS: Actual pre-wedding shoot
 We had Yakun for bf together with L at century square before heading to YCBS for makeup at 9.30am. It started raining on the way to AMK.
 
 A came along with mcdonalds brunch around 11am. By 12.30pm we were almost done with makeup and started to head to our first location Seletar Reservoir for the huge tree, while it was still raining. We started with casual outfits (navy top, khaki pants, navy maxi dress) and began moving into poses as directed by photographer Coffee. We had to find cover under trees so as not to get our makeup wet.
 
 Next we changed to our gowns and suits and thankfully the weather started to clear up and we continued with the shoot. After we were done, we changed into the second gown and left for Henderson Waves around 3.20pm. L and A dropped us off at the entrance of Henderson Waves before parking the car. We spent about 2hrs+ taking photos before we headed to our final location MBS 6+pm (parked at Ritz Carlton as the carpark charges were $2 plus per entry after 6pm). We changed into final purple gown and navy suit and walked across Helix Bridge to LV for some photos. Then we walked back to Helix Bridge for some iconic MBS night shots and ended around 8.20pm.
+
+#### 20 May 2023 - Fifth appointment at YCBS: Selection of photos
+We booked an appointment on Sat 2pm to select our 40 pre-wedding photos. Reached late about 2.30pm because we queued for Ubi fish soup for lunch.
+
+#### 21 May 2023 - Solemnisation at Kai Garden
+We reached Kai Garden around 11.30am before our solemniser arrived. We were pleasantly surprised by the nice complimentary ROM table decoration but then realised it was probably a reuse as we heard from the main waitress that a couple had their solemnisation the previous day in the same room. Mum gave the waitress an angbao after the last course of the meal even though she told me it wasn't required when i asked her in the morning.
+
+We chose to have a simple solemnisation (without march-in) and read to each other our personal wedding vows. Thought our solemniser was going to summarise our personal vows in Chinese, but no. After solemnisation, we headed to Funan to take some photos at Photomatic but was told that the earliest available slot is only at 6.45pm. So, we headed to check-in at Fort Canning Hotel first before leaving the hotel to go back for the photoshoot and dinner at a mexican-indian restaurant at Clarke Quay.
+
+#### 22 May 2023 - High Tea at Ritz Carlton and Fast X movie at City Square
+Unfortunately, there were no more slots at the Fort Canning Hotel's spa. We ate So Good at Capitol at 1pm, then headed to Ritz Carlton for high tea at 3.30pm where we ate until we were bloated. Then we headed to City Square to catch the Fast X movie, our first experience at GV Gemini.
+
+#### 28 May 2023 - Celebration dinner with aunts
+We had celebratory dinner at Hua Yu Wee Seafood Restaurant with the aunts and families and also Kooks Creamery at Bedok for dessert.
