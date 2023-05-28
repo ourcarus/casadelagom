@@ -99,7 +99,10 @@ We reached Kai Garden around 11.30am before our solemniser arrived. We were plea
 We chose to have a simple solemnisation (without march-in) and read to each other our personal wedding vows. Thought our solemniser was going to summarise our personal vows in Chinese, but no. After solemnisation, we headed to Funan to take some photos at Photomatic but was told that the earliest available slot is only at 6.45pm. So, we headed to check-in at Fort Canning Hotel first before leaving the hotel to go back for the photoshoot and dinner at a mexican-indian restaurant at Clarke Quay.
 
 #### 22 May 2023 - High Tea at Ritz Carlton and Fast X movie at City Square
-Unfortunately, there were no more slots at the Fort Canning Hotel's spa. We ate So Good at Capitol at 1pm, then headed to Ritz Carlton for high tea at 3.30pm where we ate until we were bloated. Then we headed to City Square to catch the Fast X movie, our first experience at GV Gemini.
+Unfortunately, there were no more slots at the Fort Canning Hotel's spa. We ate So Good at Capitol at 1pm, before heading to Orchard to send our wedding bands for engraving. Then we headed to Ritz Carlton for high tea at 3.30pm where we ate until we were bloated. Then we headed to City Square to catch the Fast X movie, our first experience at GV Gemini.
+
+#### 25 May 2023 - Collection of wedding bands after engraving
+Went to Orchard to collect our wedding bands after engraving.
 
 #### 28 May 2023 - Celebration dinner with aunts
 We had celebratory dinner at Hua Yu Wee Seafood Restaurant with the aunts and families and also Kooks Creamery at Bedok for dessert.
