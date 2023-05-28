@@ -81,7 +81,7 @@ After yuan xiao lunch with Serangoon family at Jewel, we went to browse SDJ at C
 2 families finally met for the first official meal at Soup restaurant Jewel for TQ.
 
 #### 19 Mar 2023 - Fitting for pre-wedding shoot
-We went down to YCBS on Sundat for final fitting before the actual shoot next Monday.
+We went down to YCBS on Sunday for final fitting before the actual shoot next Monday.
 
 #### 27 Mar 2023 - Fourth appointment at YCBS: Actual pre-wedding shoot
 We had Yakun for bf together with L at century square before heading to YCBS for makeup at 9.30am. It started raining on the way to AMK.
