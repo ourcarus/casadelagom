@@ -83,7 +83,7 @@ After yuan xiao lunch with Serangoon family at Jewel, we went to browse SDJ at C
 #### 19 Mar 2023 - Fitting for pre-wedding shoot
 We went down to YCBS on Sundat for final fitting before the actual shoot next Monday.
 
-#### 27 Mar 2023 - Fourth appoint at YCBS: Actual pre-wedding shoot
+#### 27 Mar 2023 - Fourth appointment at YCBS: Actual pre-wedding shoot
 We had Yakun for bf together with L at century square before heading to YCBS for makeup at 9.30am. It started raining on the way to AMK.
 
 A came along with mcdonalds brunch around 11am. By 12.30pm we were almost done with makeup and started to head to our first location Seletar Reservoir for the huge tree, while it was still raining. We started with casual outfits (navy top, khaki pants, navy maxi dress) and began moving into poses as directed by photographer Coffee. We had to find cover under trees so as not to get our makeup wet.
