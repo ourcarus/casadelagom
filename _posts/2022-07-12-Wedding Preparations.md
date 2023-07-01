@@ -108,4 +108,4 @@ Went to Orchard to collect our wedding bands after engraving.
 We had celebratory dinner at Hua Yu Wee Seafood Restaurant with the aunts and families and also Kooks Creamery at Bedok for dessert.
 
 #### 1 Jul 2023 - Sixth appointment at YCBS: Confirmation of album layout, 5-in-1 frame and cover photo
-We had usual fish soup at Tai Seng before heading down to YCBS at 2pm to confirm the album layouts. We finally received our unedited and edited 40 soft copies of our pre-wedding photos, along with the album layouts, in a YCBS thumbdrive.
+We had usual fish soup at Tai Seng before heading down to YCBS at 2pm to confirm the album layouts. We finally received our unedited and edited 40 soft copies of our pre-wedding photos, along with the album layouts, in a YCBS thumbdrive. S was so happy.
