@@ -109,3 +109,8 @@ We had celebratory dinner at Hua Yu Wee Seafood Restaurant with the aunts and fa
 
 #### 1 Jul 2023 - Sixth appointment at YCBS: Confirmation of album layout, 5-in-1 frame and cover photo
 We had usual fish soup at Tai Seng before heading down to YCBS at 2pm to confirm the album layouts. We finally received our unedited and edited 40 soft copies of our pre-wedding photos, along with the album layouts, in a YCBS thumbdrive. S was so happy.
+
+#### 13 Aug 2023 - GDL
+I woke up at at 7.45am and the roast pig (10kg but larger than expected) arrived at Tampines house just after i finished bathing, around 8am. The wedding cakes arrived sometime after, before 9am. AC and J arrived around 9.15am, accompanied by Ahma whom i was surprised to see. We waited for L and H to arrive around 10am and then we began our journey sometime around 10.30am. I helped to hang the hongcai and we took some photos of the GDL stuff. Afterwards we delivered the wedding cakes to Serangoon and Tampineses.
+
+
